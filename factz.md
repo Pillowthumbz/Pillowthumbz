@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Pillowthumbz
+- 👀 I’m interested in ... coding of any kind
+- 🌱 I’m currently learning ... python c c++ java
+- 💞️ I’m looking to collaborate on ... anything that will help me make a game 
+- 📫 How to reach me ... twitter my username also here 
+- 😄 Pronouns: ... he /him
+- ⚡ Fun fact: ...i love to learn just about anything very complex
